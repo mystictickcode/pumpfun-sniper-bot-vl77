@@ -1,4 +1,4 @@
-# 
+# Get the ultimate pump.fun sniper bot with new pump.fun sniper bot | rug-pull-detection + liquidity-sniping. Featuring rug-pull-detection and liquidity-sniping, it's the best
 
 
 
